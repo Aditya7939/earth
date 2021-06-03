@@ -1,0 +1,1 @@
+mother earth is taking care of all plants , animals and other living beings on this green planet.
